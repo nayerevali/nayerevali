@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nayerevali
+- 👀 I’m interested in web design and programing
+- 🌱 I’m currently learning seo ...
+- 💞️ I’m looking to collaborate on web jobs
+- 📫 How to reach me 09107440852 is my phone number and whatsapp accunt.
